@@ -1,16 +1,29 @@
-### Hi there 👋
+## **Hi, Good day! 👋😊**
+*I am a third year Bachelor of Science in Information Systems major in Business Analytics student at West Visayas State University. I'm 20 and from Passi City by the way 😁.*
 
-<!--
-**Mariajessapanizal/Mariajessapanizal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-----
+### 🌱I’m currently learning
+- Flutter
+- Sparx
+- On how to be a better citizen, student, daughter, sister and friend
 
-Here are some ideas to get you started:
+### 🔎 I’m looking for help with
+- My how's
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 📋 Things I love to do:
+- Cooking
+- Watching inspiring and mood uplifting videos
+- Listening to music
+- Wandering
+- Laughing to relieve stress
+- Doing make up while waiting for stable internet connection (loading -_-)
+
+### 📫 How to reach me: (Let's be friends 👨‍👩‍👧‍👦)
+- Facebook: *Maria Jessa Panizal*
+- Instagram: *mariaaayyyyy*
+- Twitter: *xxMariayyyy*
+- Email 📧: *majessa.panizal@wvsu.edu.ph*
+
+----------
+##### *💡 Whatever it takes 💪✨*
+##### *💡 Everyone has different clock, wait for your time ⏰*
